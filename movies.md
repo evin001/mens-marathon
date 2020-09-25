@@ -28,3 +28,5 @@
  ![](https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/68a49816-b070-456b-a408-bf605e8806ef/300x450)
 - Хижина (Виды отношений)   
  ![](https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/d790f95e-2ae0-4913-878a-168289f00ff4/300x450)
+- Умница Уилл Хантинг (МУЖЧИНА)   
+ ![](https://avatars.mds.yandex.net/get-kinopoisk-image/1629390/0e2ecf70-4309-4e53-839b-ff3c9d8b0129/300x450)
