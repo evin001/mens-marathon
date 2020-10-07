@@ -30,5 +30,7 @@
  ![](https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/d790f95e-2ae0-4913-878a-168289f00ff4/300x450)
 - Умница Уилл Хантинг (МУЖЧИНА)   
  ![](https://avatars.mds.yandex.net/get-kinopoisk-image/1629390/0e2ecf70-4309-4e53-839b-ff3c9d8b0129/300x450)
-- Деньги на двоих (Мужская природа)
+- Деньги на двоих (Мужская природа)   
  ![](https://avatars.mds.yandex.net/get-kinopoisk-image/1773646/704b8acf-c430-4cb2-9170-fa831f2af89f/300x450)
+- Запах женщины (Качества характера)   
+ ![](https://avatars.mds.yandex.net/get-kinopoisk-image/1599028/378890fe-a68d-45ba-a87e-9108ae0e4574/300x450)
